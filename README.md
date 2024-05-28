@@ -1,16 +1,16 @@
-## Hi there 👋
+   𝐁𝐄𝐌 𝐕𝚰𝐍𝐃𝐎𝐒 𝐀𝐎 𝐌𝐄𝐔 𝐏𝐄𝐑𝐅𝚰𝐋
+           ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
+           
+Meu nome é Ana Carollina Valeriano Souza
 
-<!--
-**anacarollinavs/anacarollinavs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⭒ Estou estudando na Alura
+⭒ Estou me desenvolvendo na linguagem JavaScript
+⭒ Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-Here are some ideas to get you started:
+ 𝐕𝐎𝐂Ê 𝐏𝐎𝐃𝐄 𝐄𝐍𝐓𝐑𝐀𝐑 𝐄𝐌 𝐂𝐎𝐍𝐓𝐀𝐓𝐎 𝐂𝐎𝐌𝐈𝐆𝐎 🎀𓂃 ࣪˖
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ anacarollina0718@gmail.com
+
+ @__7llina
+
+
