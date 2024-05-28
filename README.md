@@ -13,7 +13,7 @@ Meu nome é Ana Carollina Valeriano Souza
 
  @__7llina
 
- ![](![( ꈍᴗꈍ) (4)](https://github.com/anacarollinavs/anacarollinavs/assets/171063694/f91162ad-a517-49a1-864d-4caff1b8db21)
-)
+
+
 
 
